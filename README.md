@@ -1,0 +1,1 @@
+# Algunas-advertencias-para-las-fotos-en-color
